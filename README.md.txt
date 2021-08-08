@@ -1,0 +1,1 @@
+setting up Git hub. it has been stressful.thank God for external resources
